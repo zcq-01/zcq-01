@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @zcq-01
+- 👀 I’m interested in web
+- 🌱 I’m currently learning java/pentest?
+- 💞️ I’m looking to collaborate on ..
+- 📫 How to reach me 1964682640@qq.com
+- 来自成都理工大学网络空间安全专业的大三学生
